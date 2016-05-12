@@ -1,2 +1,12 @@
 # hogehoge
-test desk
+test des
+
+korekara
+git-hub no
+benkyouwo
+shimasu
+desu
+
+hai
+
+
